@@ -6,6 +6,8 @@ What is Bitget referral code and how to use it in 2025? Hey Bitgetters! Recently
  
  *[Register here](https://partner.bitget.com/bg/9X3CRU)*.
 
+ ![软件LOGO](https://yydsxx.com/img/snake.gif)
+
 ## What is a Bitget referral code?👋
 
 First, each user has a unique referral code designed to encourage them to invite friends to join Bitget and trade together. Second, the referral code acts as the link between you and your invited friends. When a friend enters your referral code while signing up, they will be identified as your invitee, and both of you will receive rewards through the referral relationship.
