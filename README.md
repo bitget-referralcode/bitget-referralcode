@@ -6,11 +6,11 @@ First, each user has a unique referral code designed to encourage them to invite
 
 Some users might miss this step and wonder, "What should I do if I forgot to give the referral code to my friends?" To avoid such issues, here's how you can use the referral code.
 
-Where to find the referral code?
+## Where to find the referral code?
 
-## 👋It is here:[e8dz]
+👋It is here:[e8dz]
 
-## 👋And you can copy the other code:[e8dz3843]
+👋And you can copy the other code:[e8dz3843]
 
 Public 2025-06-03 22:40
 
