@@ -1,5 +1,7 @@
 What is Bitget referral code and how to use it in 2025? Hey Bitgetters! Recently, my name is StockMen. Bitget has launched several promotions that encourage you to refer new users. Many of you have asked how to share your referral codes or links, and how your friends can sign up on Bitget using them.👋
 
+![iimage](https://private-user-images.githubusercontent.com/152826656/457187915-f4737cf3-000b-4ab2-b0d5-79cb6bf1c714.jpg)
+
  referral code e8dz
  
  *[Register here](https://partner.bitget.com/bg/9X3CRU)*.
