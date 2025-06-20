@@ -6,9 +6,6 @@ What is Bitget referral code and how to use it in 2025? Hey Bitgetters! Recently
  
  *[Register here](https://partner.bitget.com/bg/9X3CRU)*.
 
- ![软件LOGO](https://yydsxx.com/img/snake.gif)
-
- ![软件logo](https://private-user-images.githubusercontent.com/152826656/457188948-a2908afb-8e92-44ad-a414-a34075384ff4.png?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NTAzODk4OTAsIm5iZiI6MTc1MDM4OTU5MCwicGF0aCI6Ii8xNTI4MjY2NTYvNDU3MTg4OTQ4LWEyOTA4YWZiLThlOTItNDRhZC1hNDE0LWEzNDA3NTM4NGZmNC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUwNjIwJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MDYyMFQwMzE5NTBaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jODk5YjUzOTZjY2E4ZWViMzJhODg2Y2QyYTE0MzRlYWQzNjg0ZGViZDI0Yzg1Yzg4ZTdiNTgwMTJhZjE5M2VlJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.5o1X_DpPnN756QwQXosr-xXbzuKlBk0iqsSfoCKLfAo)
 
 ## What is a Bitget referral code?👋
 
